@@ -23,3 +23,4 @@ One of the funniest and most memorable moments is **Detective Pikachu’s interr
 Did you know? **The film was inspired by the 2016 video game *Detective Pikachu* for the Nintendo 3DS**. The game's unique take on a talking Pikachu with detective skills led to this live-action adaptation!
 
 *Pokémon Detective Pikachu* is a unique and fun addition to the Pokémon franchise, mixing nostalgia with a fresh, humorous twist. Whether you're a lifelong Pokémon fan or new to the world, there's something enjoyable for everyone!
+
